@@ -1,4 +1,4 @@
-#  
+#  Experience sol's rng like never before with exclusive sol's rng Script, the #1 Script. Includes infinite resources and anti-ban for unbeatable
 
 
 
